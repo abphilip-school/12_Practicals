@@ -1,1 +1,1 @@
-# 12_Practicals
+# 12th Grade: Practicals
